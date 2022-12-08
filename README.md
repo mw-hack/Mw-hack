@@ -1,16 +1,13 @@
-### Hi there 👋
+## Mr Matrix
 
-<!--
-**amireror/amireror** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- channel Telegram : <a href="https://t.me/Mw_hack">Mw_hack</a>
+- contact with me : <a href="https://t.me/Personer">Admin</a>
 
-Here are some ideas to get you started:
+-------------------------- 
+<img src="https://s6.uupload.ir/files/picsart_22-12-08_12-55-53-038_nhtg.jpg"> - Ꮖ ᎳᏆᏞᏞ ᎡᎾᎪᎡ ᏆᏁ ᏚᏆᏞᎬᏁᏟᎬ - $.C <img align="right" alt="coding" width="400" src="https://media1.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif"> 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Ꮖ ᎳᏆᏞᏞ ᎡᎾᎪᎡ ᏆᏁ ᏚᏆᏞᎬᏁᏟᎬ
+
+
+- $.C
+<img align="right" alt="coding" width="400" src="https://media1.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif">
